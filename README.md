@@ -1,0 +1,2 @@
+# Alkitab
+Terjemahan Baru
